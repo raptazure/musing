@@ -6,7 +6,7 @@ description: >-
 
 # Jan. 20
 
-The change of Shelley's conception of God and divinity reminds me of C.S. Lewis' conversion from an atheist to a Christian. It is to find the reconciliation between reason and imagination and to recognize the synthetic power of imagination, especially in face of the unknown. Here is a poem written by C.S. Lewis which explores the relationship of these two functions in the human mind:
+The change of Shelley's conception of God and divinity reminds me of C.S. Lewis' conversion from an atheist to a Christian. It is to find the reconciliation between reason and imagination and to recognize the synthetic power of imagination, especially in face of the unknown. Here is a poem written by C.S. Lewis which explores the relationship of these two faculties in the human mind:
 
 > Set on the soul's acropolis the reason stands&#x20;
 >
