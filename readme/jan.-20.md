@@ -1,10 +1,6 @@
----
-description: >-
-  Reading:
-  https://thehumandivine.org/2016/05/08/essay-on-christianity-by-percy-bysshe-shelley/
----
-
 # Jan. 20
+
+> Reading: https://thehumandivine.org/2016/05/08/essay-on-christianity-by-percy-bysshe-shelley/
 
 The change of Shelley's conception of God and divinity reminds me of C.S. Lewis' conversion from an atheist to a Christian. It is to find the reconciliation between reason and imagination and to recognize the synthetic power of imagination, especially in face of the unknown. Here is a poem written by C.S. Lewis which explores the relationship of these two faculties in the human mind:
 
