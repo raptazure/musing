@@ -6,7 +6,7 @@ description: On Symposium
 
 ![Philosophy, Intangibility, and Preparing for Exams - The Heritage  Management Organization](https://heritagemanagement.org/wp-content/uploads/2016/04/Philosophy-and-Intangibility.jpg)
 
-​ 图为 柏拉图与亚里士多德在讨论问题（文艺复兴时作品）
+
 
 **作者引入**
 
@@ -153,14 +153,16 @@ Phaidros 的谈话通过引用古希腊历史学家 Hesiod 等人的看法 —�
 
     狄奥提玛讲述野兽为了保护幼崽可以忍受饥饿，甚至不惜牺牲自己的生命，而人在这个层面上并没有太大不同，因为“可朽者的本性都在尽力追求不朽”。通过留下新生命来填补自己死亡以后留下的空缺，一切可朽的事物得以保存和延续。于人类而言，这里的新生命可以指身体层面的延续 —— 儿女，也可以是精神层面的延续 —— 艺术。从古至今，无数心怀着爱的诗人都希望能借自己灵魂的鸣响将被歌咏者化为永恒，如莎士比亚的一首著名的十四行诗里写到 “So long as men can breathe or eyes can see, / So long lives this, and this gives life to thee.” 纵使青春会消逝殆尽，美貌会不复存在，肉体会归于尘土，但献给爱的诗文将会永远流传，直至宇宙的尽头，万物的终结。而诗歌，由此就成为诗人为爱而留下的新生命，成为可朽者所追寻的不朽，成为在须臾之中的永恒。
 
-    不朽的使者，甜美的爱啊 /
 
-    让这古老而真诚的理解 /
 
-    踏过两千五百年的风尘走来 /
+&#x20;     不朽的使者，甜美的爱啊 /
 
-    再度生长在你我的心田 /
+&#x20;     让这古老而真诚的理解 /
 
-    一曲终了，余韵绕梁 /
+&#x20;     踏过两千五百年的风尘走来 /
 
-    会饮将结，永恒已至 /
+&#x20;     再度生长在你我的心田 /
+
+&#x20;     一曲终了，余韵绕梁 /
+
+&#x20;     会饮将结，永恒已至 /
