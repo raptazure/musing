@@ -1,9 +1,9 @@
 # Jan. 21
 
-Let the words flow freely on the paper,
+Let words flow freely upon the paper,
 
 For they will make friends with one another,
 
-Bodying forth untold dreams of the dreamer,
+Bodying forth untold dreams of a dreamer,
 
-To build a world upon sounds and pictures.
+To build a world from sounds and pictures.
