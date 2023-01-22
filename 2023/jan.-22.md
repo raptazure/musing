@@ -8,7 +8,7 @@ Yet with baser pleasure does mate.
 
 
 
-Terrible habitual agent,
+Horrible habitual agent,
 
 Turns him into dust that
 
