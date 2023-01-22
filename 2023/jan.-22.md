@@ -20,7 +20,7 @@ Now here comes a poet.
 
 Gentle songs chanted forth,
 
-The veil of world does lift.
+The veil of things does lift.
 
 
 
