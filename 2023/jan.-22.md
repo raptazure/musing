@@ -24,7 +24,7 @@ The veil of world does lift.
 
 
 
-Light creeps into his heart,
+Light flies into his heart,
 
 Diminishing the fallen mask,
 
