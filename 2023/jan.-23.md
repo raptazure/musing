@@ -1,0 +1,3 @@
+# Jan. 23
+
+Shelly's poetry can be read in many ways - politically, prophetically, philosophically and psychologically. For example, when we are looking at _Prometheus Unbound,_ in the macrocosm point of view, it can be regarded as a representation of the shattered history and desired future of human race as a whole, yet in the microcosm point of view, it can, at the same time, be thought as the transformations occurred in a single human heart. Actually, under the synthetic power of imagination, all these different ways of interpretation can be unified into one vision, for they are, essentially, the same spirit incarnated in various forms.
