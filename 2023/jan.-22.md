@@ -18,7 +18,7 @@ Worms care not to eat.
 
 Now here comes a poet.
 
-Gentle songs chanted forth,
+Gentle songs chanting forth,
 
 The veil of things does lift.
 
