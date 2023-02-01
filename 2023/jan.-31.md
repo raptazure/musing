@@ -1,0 +1,3 @@
+# Jan. 31
+
+Do you still remember those old golden days when the residents of Earth are not yet confined in the narrow spaces of high buildings made of solid concrete, erected up from the barren ground of lifelessness, when the deepest desires floating in our hearts are conveyed through letters and gestures, possessing lives of their own, dancing together with spirits drifting in the air, when human beings and everything in Nature participate in the universal hymn of Beauty, undisturbed by their distinct differences, yet sharing the divine emanation in joint pleasure? Ye, I do remember, only that those days don't belong to a distant past, but are manifesting themselves through your Imagination Now.
