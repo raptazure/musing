@@ -9,3 +9,6 @@ Quote: _Poetic Diction_ by Owen Barfield
 So, the causation and the solution is pretty clear now.
 
 「诗歌」拯救我们，我们也要拯救「她」。
+
+_Hymn to Intellectual Beauty._
+
