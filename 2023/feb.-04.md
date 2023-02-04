@@ -7,3 +7,5 @@ Quote: _Poetic Diction_ by Owen Barfield
 > Great poetry is the progressive incarnation of life into consciousness.
 
 So, the causation and the solution is pretty clear now.
+
+「诗歌」拯救我们，我们也要拯救「她」。
