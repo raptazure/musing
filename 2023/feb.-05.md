@@ -1,0 +1,3 @@
+# Feb. 05
+
+It is actually quite interesting to think about the motivation of Juvenalian satirists. Instead of being born from the usually attributed "cynicism" or "misanthropy", it can also be viewed as originating from the innate belief in the possibilities of improvements in human society and the essential goodness of human nature. If one is simply cynical, it would make no sense at all for such fierce moral indignation, instead, one would simply shrug indifferently and walk away, which is exactly opposite from the vehement acts of a Juvenalian satirist. They are, truly, vindicators of social liberty and justice, merely adopting a different way.
